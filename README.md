@@ -1,2 +1,2 @@
 # Colleges
-Assume any college 
+Assume any college as your wish 
